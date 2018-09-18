@@ -27,3 +27,14 @@ Bullying may be continuous teasing, but it may become more serious and include h
 Actions by crowds are one example of what socioligists call collective behavior.
 Collective behavior is social behavior that is relatively unorganized, spontaneous, and unpredictable.
 It contrasts with institutional behavior, which occurs in a well-organized, rather predictable way.
+Collective behvior in a crowd can be categorized according to protest a government action may express their anger.
+A hostile crowd may turn violent, throwing rocks and breaking windows.
+In 1990 in Mecca, Saudi Arabia, thousads of Muslim pilgrims were walking through a very long tunnel when the lights accidentally went out.
+The people were frighetened and started a stampede.
+One theory to explain why crowds seem to act collectively is Gustace Le Bon's social contagion theory.
+Le Bon believe that the large number of people in a crowd allows our primitive side to emerge.
+In a crowd we are faceless and nameless and this allows us to act in an emotional and irrational way.
+A different perspective is found in the emergent-norm theory.
+Hooliganism is a form of collective behavior that sometimes occurs at or after sports events.
+It includes destructive and often ciolent activities by fans of opposing teams.
+In 1985, at the European Cup final in Brussels, 39 people died when Belgian and English soccer fans rioted and a wall in the stadium collapsed on them.
