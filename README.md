@@ -23,3 +23,7 @@ Members of these groups often believe i the same things, talk the same way, dres
 They are inclined to seek advice from parents on financial, educational, career, and other serious matters.
 Second, strong peer group conformity may result in ingroups and outgroups.
 These groups are sometimes called cliques.
+Bullying may be continuous teasing, but it may become more serious and include harassment and physical abuse as well.
+Actions by crowds are one example of what socioligists call collective behavior.
+Collective behavior is social behavior that is relatively unorganized, spontaneous, and unpredictable.
+It contrasts with institutional behavior, which occurs in a well-organized, rather predictable way.
