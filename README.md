@@ -38,3 +38,21 @@ A different perspective is found in the emergent-norm theory.
 Hooliganism is a form of collective behavior that sometimes occurs at or after sports events.
 It includes destructive and often ciolent activities by fans of opposing teams.
 In 1985, at the European Cup final in Brussels, 39 people died when Belgian and English soccer fans rioted and a wall in the stadium collapsed on them.
+Giels are cuddled and kissed while boys are more frequently bounced around and lifted high in the air.
+By age four, girls and boys have learned to imitate these conversational styles.
+As a result, boys may grow up with a fear of being feminine and, as young men, try to keep up a macho, that is, very masculine, image.
+Boys' friendships are often based on physical ability and dominant behavior.
+They have more intense friendships, based on emotional connections and shared secrets.
+Increasingly today, many parents try to bring up their children in a gender-neutral way.
+This gender bias may have been unintentional, but 30 years of research showed that it occurred in almost all education settings.
+Studies show that at age nine, the majority of girls are confident, assertive and positive about themselves.
+However, when they reach high school their self-esteem and their performances in math and science decrease.
+The mass media is another very important agent of socialization.
+Television commercials, for example, have until recently presented women primarily as sex object or as dutiful homemakers.
+Many movies use younger, thinner women as "body-doubles" for close-ups of female movie stars.
+Body image is how people perceive their own bodies.
+Stereotypes of women have also appeared on many television programs in the past.
+These kinds of roles can still be seen today, for example, in mant of the telenovelas from Latin America.
+Many male characters are portrayed as capable, strong, and ready to fight to defend themselves or to protect others.
+Perhaps the best example is in Janpanese manga, in which males are usually dominant and females are generally dependent and submissive.
+Because gender is one basis for social inequality, that is, privileges and access for some groups but not for others, it is especially important to understand these messages about gender and gender roles.
