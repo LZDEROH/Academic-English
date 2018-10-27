@@ -52,7 +52,16 @@ Television commercials, for example, have until recently presented women primari
 Many movies use younger, thinner women as "body-doubles" for close-ups of female movie stars.
 Body image is how people perceive their own bodies.
 Stereotypes of women have also appeared on many television programs in the past.
-These kinds of roles can still be seen today, for example, in mant of the telenovelas from Latin America.
+These kinds of roles can still be seen today, for example, in many of the telenovelas from Latin America.
 Many male characters are portrayed as capable, strong, and ready to fight to defend themselves or to protect others.
 Perhaps the best example is in Janpanese manga, in which males are usually dominant and females are generally dependent and submissive.
 Because gender is one basis for social inequality, that is, privileges and access for some groups but not for others, it is especially important to understand these messages about gender and gender roles.
+Today, the Internet is so integrated into our lives and the media that it is hard to imagine a world without it.
+This is possible bexause of two important developments in digital technology: the browser and the search engine.
+Anyonr can find large amounts of news and information instantly.
+Users no longer have to depend on what they a newspaper or television station decides is newsworthy.
+They can also find entertainment that is not available on traditional media, such as interactive games.
+The telephone directory usually just provides the name, address, and telephone number of a business.
+Wikipedia is an encyclopedia that is created by users.
+Although the Internet has brought many advances, the speed and accessibility of the medium also has drawbacks.
+The term digital divide refers to unequal access to digital information.
