@@ -65,3 +65,23 @@ The telephone directory usually just provides the name, address, and telephone n
 Wikipedia is an encyclopedia that is created by users.
 Although the Internet has brought many advances, the speed and accessibility of the medium also has drawbacks.
 The term digital divide refers to unequal access to digital information.
+Social media have spread quickly and are now pervasive.
+The survey also showed that in the preceding year,
+Facebook even has its own currency so users can buy and sell things within the site.
+How have social media affected interpersonal interaction?
+Some people worry that social media users spend too much time in cyberspace, and the will become isolated from real life and real people.
+Another concern is that the Internet and social sites like Facebook make it possible to interact anonymously.
+There have been several shocking cases of cyberbullying, in which some users have harassed another users anonymously.
+Cyberbulling includes sending hostile messages, spreading rumors, and publishing personal information or embarrassing photographs.
+A few have committed suicide as a result.
+Social movements are a form of collective behavior to promote or prevent social or political change.
+Others, such as the civil rights movement in the United States, are considered reform movements.
+Social media have provided these movements with an accessible and efficient way to communicate with other members of the movement and publicize their efforts outside of the movement.
+President Barack Obama used social media extensively in his 2008 presidential campaign, but the impact of social media on politics is not limited to the United States.
+The 2011 political unrest spread through the use of Youtube and Facebook.
+New media may offer advantages for education, but some people are concerned that technology can also be a distraction and may even get in the way of learning.
+In the past, students had to learn and remember a lot of things - names of important people, lines of poems, mathematical equations.
+In a way, the Internet has become our collective memory.
+A 2010 study in England revealed that the average Briton spends seven hours a day using some form of media.
+Opponents have a diffent perspective.
+They believe that the wide range and complexity of information makes us smarter, not dumber.
