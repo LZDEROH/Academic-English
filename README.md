@@ -98,4 +98,48 @@ They believe that the wide range and complexity of information makes us smarter,
  For these people, the imposition of external controls, such as polocing and punishment, may discourage them from committing crimes.
  Some controls, such as policing and closed circuit cameras, are preventive.
  Other external controls are punishments for deviant behacior.
- 
+ There are three main kinds of these punitive external cntrols.
+ Finally, the most severe is imprisonment, and in some societies, physical punishment or even death.
+ If you were driving while drunk, you could also lose your driver's license, or you mught even have to serve time in prison.
+ There are a number of factors in the effectiveness of these external controls in stopping people from committing crimes.
+ Their effectiveness depends, in part, on the certainty of punishment.
+ If there is little likelihood of being caught, the external contrils may not be very effective deterrents.
+ For example, people who commit "crimes of passion" feel uncontrillable rage of overwhelming emotional pressure.
+ Law enforcement agencies: government offices that are responsible for upholding laws and finding people who break them.
+ It is a challenging job, but in recent history, forensics - the use of science and technology to solve crimes - has become an important tool.
+ A person's fingerprints are the swirled patterns on the skin at the tips of the fingers.
+ Sometime it is only a partial fingerprint, but that can be sufficient to make an identification.
+ Many fingerprints are invisible under normal circumstances, but they can be made visible with special chemicals.
+ Peints can also be examined in darkness using highpowered lasers, anf they can be retrieved from almost any surface - even clothing, plastic bags, or human skin.
+ These have been computerized to make it easier to search for matching prints.
+ Handwriting analysis has been used to identify a wide range of offenders, from serial killers to war criminals.
+ Bloodstains are also important clues in violent crimes.
+ Criminals sometimes try to wash blood away, but forensic professionals can detect blood even if the ratio of blood to water is 1:12,000.
+ If detecitve know where the insects come from, they can trace the drug back to a particular location in the world.
+ DNA analysis is based on the fact that every person (except an identical twin) has unique DNA.
+ A sample of DNA can be raken from a person and matched to a sample of DNA taken from a crime scene - from a drop of blood, saliva, or perhaps a strand of hair.
+ If there is no match to DNA from the crime scene, suspects can be eliminated.
+ lenses, butt, inside flap, mouthpiece, scrapings.
+ When a crime does occur, law enforcement - detection and prosecution of the crime - begins.
+ Prisons serve a variety of purposes.
+ This is called the deterrence function.
+ Imprisonment, as well as other forms of punishment, also satisfies the public's desire for a criminal to be punished.
+ This is called the retribution function.
+ Most criminals cannot commit additional crimes while they are in prison; this is the incapacitation function.
+ Finally, modern prison programs often try to help criminals change their behaviors so they can reenter society.
+ This is called the rehabilitation function.
+ Most experts agree that imprisonment, or incarceration, successfully fulfills some of its function some of the time.
+ Prison provides a controlled and predictable environment where inmates are clothed, fed, and told what to do.
+ Rehabilitation programs may include drug treatment, job training, counseling, and education.
+ It may also include resocialization, that is, training for how to behave appropriately out side of prison.
+ By their very nature, prisons work against rehabilitation.
+ For example, instead of going to jail, some offenders are put on probation.
+ This means that they are allowed to remain in the community under some kind of supervision.
+ New technologies, including security bracelets, can assist in this supervision.
+ The ultimate punishment is the death penalty, which is also called capital punishment.
+ Many countries have abolished the death penalty.
+ However, according to Amnesty International, in 2009, capital punishment was still in active use in 58 countries.
+ In most countries, it has been used as a punishment for homicide, but some governments have also used it against political enemies.
+ It's human noise and clamor.
+ That, coupled with the sight of those dreary bars, made me think,'Man, what have I gotten myself into here?!'
+ Prison is a confined place, packed with living bodies of every shape, color, and size.
