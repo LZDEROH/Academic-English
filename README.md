@@ -85,3 +85,7 @@ In a way, the Internet has become our collective memory.
 A 2010 study in England revealed that the average Briton spends seven hours a day using some form of media.
 Opponents have a different perspective.
 They believe that the wide range and complexity of information makes us smarter, not dumber.
+ then, the members of that society need to behave in orderly ways:
+ These are referred to as internal controls and external controls.
+ Internal controls are the controls that you impose on yourself based on your values, beliefs, and fears.
+ The second aspect of internal control is the possible disapproval of friends and family who might find out about your shoplifting.
