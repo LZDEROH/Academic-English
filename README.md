@@ -89,3 +89,13 @@ They believe that the wide range and complexity of information makes us smarter,
  These are referred to as internal controls and external controls.
  Internal controls are the controls that you impose on yourself based on your values, beliefs, and fears.
  The second aspect of internal control is the possible disapproval of friends and family who might find out about your shoplifting.
+ The third factor that may deter you from stealing is the fear of detection and its consequences.
+ Many shops display signs that say shoplifters will be reported and prosecuted.
+ Some stores also employ detectives to discourage shoppers from stealing and to identify those who do steal.
+ In a studyof property crime arrests, researchers compared the percentage of arrests in two populations
+ ONe theory in sociology states that out internal controls develop out of the social bonds, such as employment, friendships, and family that connect people in a community.
+ Deviance tends to occur when these social bonds are weak.
+ For these people, the imposition of external controls, such as polocing and punishment, may discourage them from committing crimes.
+ Some controls, such as policing and closed circuit cameras, are preventive.
+ Other external controls are punishments for deviant behacior.
+ 
